@@ -1,6 +1,12 @@
 
-<img width="540" height="257" alt="67dgnu" src="https://github.com/user-attachments/assets/46f4e41c-9807-48da-8855-401afa9173ae" />
+   
 
-wip
+      
+   ![1000136709](https://github.com/user-attachments/assets/c73e6423-9e52-45b7-8630-d8a5b6becab7)
 
-<img width="540" height="257" alt="3xnucq" src="https://github.com/user-attachments/assets/865dd50b-c966-4012-8432-4be6058c7158" />
+<code style="color : lightskyblue">︵‿୨♡୧‿︵‿︵‿୨♡୧‿︵‿︵‿୨♡୧‿︵‿︵‿୨♡୧‿︵</code>
+
+  wip
+  
+  ![1a2](https://github.com/user-attachments/assets/dff093d9-1bda-4480-8598-3ee563760aee)![2a3](https://github.com/user-attachments/assets/774debbc-cea5-4940-8283-42477fd2e316)
+
