@@ -12,6 +12,10 @@
 
   m- im an ivan (bad things) yumeshipper mirror sharingw
 
+  alsoo im trigender
+
+  use pronouns he / she / it on me, or u can use they if u want idc use whatever u want
+
   ok im lazy idk what to put here so cya
 
   im always on pony town on the server Safe Spanish/Portuguese
