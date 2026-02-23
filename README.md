@@ -47,3 +47,8 @@ chill (this person is me btw)
 
 <img width="104" height="88" alt="image" src="https://github.com/user-attachments/assets/8e0e7cae-c1ed-49e4-a33f-737fdb4e247e" />
 
+
+another honorable mention (sopa me va a matar si ve esto JAJA)
+
+<img width="575" height="152" alt="image" src="https://github.com/user-attachments/assets/bb6e0425-2502-4864-8a3f-b8d274583575" />
+
