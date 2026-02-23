@@ -56,3 +56,7 @@ another honorable mention (sopa me va a matar si ve esto JAJA)
 
 <img width="575" height="152" alt="image" src="https://github.com/user-attachments/assets/bb6e0425-2502-4864-8a3f-b8d274583575" />
 
+me again
+
+
+<img width="153" height="111" alt="image" src="https://github.com/user-attachments/assets/6e49459f-12dd-46ba-8006-764869380ab4" />
