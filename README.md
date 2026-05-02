@@ -14,3 +14,8 @@ $\color{#949494}{꒷꒦⊹ He}$ㅤ   ㅤ/  ㅤ  $\color{#837f7f}{any~” ⊹}$
 $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heavenlydeathh)
 
 #
+
+
+some random image that probably im going to remove it soon
+
+<img width="71" height="70" alt="09af9421d9eeff969b05ad1d27b93eed" src="https://github.com/user-attachments/assets/3858aec8-004e-43f4-8829-a53ae51c6170" />
