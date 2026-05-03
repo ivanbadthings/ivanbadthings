@@ -23,5 +23,6 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heaven
 
 
 
-<img width="95" height="58" alt="jvhjfkdjvhjuijfvi" src="https://github.com/user-attachments/assets/62cde216-fa6a-4509-b1e1-97e27bf8c264" />
+<img width="97" height="57" alt="Tumblr-l-114252703081519" src="https://github.com/user-attachments/assets/2658c19d-82f4-4303-808a-7a33d7b84f09" />
+
 
