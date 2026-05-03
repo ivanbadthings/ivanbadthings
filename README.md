@@ -39,7 +39,16 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heaven
 .ᐟ  ✦ ₊ i love listening to music, i listen to system of a down, babymetal, candye syrup, maretu, etc oki
 
 ![nohicelatarea](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
-.ᐟ  ✦ ₊ nothing here, just text(
+.ᐟ  ✦ ₊ ivan yume (and fictkin, hai), im okei w doubles
 
   
+</details>
+
+
+<details>
+<summary>$${\color{#1570ac} 𓈒ֺּׅ♡ \space 123 \space iwant \space yuri \space ꒷꒦𓏲}$$</summary>
+  
+![imadog](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
+.ᐟ  ✦ ₊ ignore this one is just a test..........
+
 </details>
