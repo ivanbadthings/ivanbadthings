@@ -19,8 +19,7 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heaven
 #
 
 
-<img width="20" height="20" alt="84r336" src="https://github.com/user-attachments/assets/47e08038-07cf-463c-964c-ba31fb955098" /> this thing is still on process help
-
+<img width="20" height="20" alt="84r336" src="https://github.com/user-attachments/assets/47e08038-07cf-463c-964c-ba31fb955098" />
 
 
 <img width="97" height="57" alt="Tumblr-l-114252703081519" src="https://github.com/user-attachments/assets/2658c19d-82f4-4303-808a-7a33d7b84f09" />
@@ -44,11 +43,3 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heaven
   
 </details>
 
-
-<details>
-<summary>$${\color{#1570ac} 𓈒ֺּׅ♡ \space 123 \space iwant \space yuri \space ꒷꒦𓏲}$$</summary>
-  
-![imadog](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
-.ᐟ  ✦ ₊ ignore this one is just a test..........
-
-</details>
