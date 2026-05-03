@@ -19,6 +19,9 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heaven
 #
 
 
-some random image that probably im going to remove it soon
+<img width="20" height="20" alt="84r336" src="https://github.com/user-attachments/assets/47e08038-07cf-463c-964c-ba31fb955098" />
 
-<img width="71" height="70" alt="09af9421d9eeff969b05ad1d27b93eed" src="https://github.com/user-attachments/assets/3858aec8-004e-43f4-8829-a53ae51c6170" />
+
+
+<img width="95" height="58" alt="jvhjfkdjvhjuijfvi" src="https://github.com/user-attachments/assets/62cde216-fa6a-4509-b1e1-97e27bf8c264" />
+
