@@ -22,7 +22,11 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heaven
 <img width="20" height="20" alt="84r336" src="https://github.com/user-attachments/assets/47e08038-07cf-463c-964c-ba31fb955098" />
 
 
-<img width="97" height="57" alt="Tumblr-l-114252703081519" src="https://github.com/user-attachments/assets/2658c19d-82f4-4303-808a-7a33d7b84f09" />
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3124x3feqao6mxke3y3qhwi5567a&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
 
 
 <details>
