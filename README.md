@@ -14,7 +14,7 @@ $\color{#ff3c3c}{𝜗୧⠀ׁ~  Heavenly}$ㅤ   ㅤ  ㅤ  $\color{#e4388d}{or}$�
 
 $\color{#949494}{꒷꒦⊹ He}$ㅤ   ㅤ/  ㅤ  $\color{#837f7f}{any~” ⊹}$
 
-$\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heavenlydeathh)
+$\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/iloveher-C)
 
 #
 
