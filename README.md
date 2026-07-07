@@ -32,17 +32,20 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/iloveh
 <details>
 <summary>$${\color{#1570ac} 𓈒ֺּׅ♡ \space abt \space me \space ! \space ꒷꒦𓏲}$$</summary>
   
-![imadog](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
-.ᐟ  ✦ ₊ ee my name is Heavenly / Kuru / Keiji or idk how many names I used to have, im always known as Kuru
+![upsilon](https://cdn.discordapp.com/emojis/1372131167624757258.webp?size=48&name=Upsilon_thing%7E1&lossless=true)
+◟. ☆ ee my name is Heavenly / Kuru / Keiji or idk how many names I used to have, im always known as Kuru
 
-![k7ru](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
-.ᐟ  ✦ ₊ im polysexual / gay / transmasc . taken i lov my transfem wife
+![teppy_heart](https://cdn.discordapp.com/emojis/1302630775514206261.webp?size=48&name=teppy_heart&lossless=true)
+◟. ☆ im polyromantic / gay / transmasc . in love with 2 friends (me andd my exwife are now friends i lov them anyways
 
-![nohicelatarea](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
-.ᐟ  ✦ ₊ i love listening to music, i listen to system of a down, babymetal, candye syrup, maretu, etc oki
+![andrew_vibin_dns](https://cdn.discordapp.com/emojis/1508151752258617354.webp?size=48&name=andrew_vibin_dns&lossless=true)
+◟. ☆ i love listening to music, specially mashcore / breakcore (i usually listen to spoonXYZ). Sometimes metal (usually heavy metal), etc. I listen to everything, so if u want to recommend me a song, i will accept it (even its the sprunki song .hj
 
-![nohicelatarea](https://private-user-images.githubusercontent.com/193108420/586867884-2c9d9bb6-e930-4929-b521-87097eb55bbf.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzc4MzMwODIsIm5iZiI6MTc3NzgzMjc4MiwicGF0aCI6Ii8xOTMxMDg0MjAvNTg2ODY3ODg0LTJjOWQ5YmI2LWU5MzAtNDkyOS1iNTIxLTg3MDk3ZWI1NWJiZi5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTAzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwM1QxODI2MjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1jYWQ1Zjk4Y2U3ZjJhMTg1NTcxOThkMjMxOGIyZDIyMTM3ZDVkZWRkNmVmMDMxZDIwYWY1MWRiM2VhYWMwMmNiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ.TDE6E5ryqg_GAy-bw24FYTgBdU9LrLl_vo2JDrdEy6Q)
-.ᐟ  ✦ ₊ ivan yume (and fictkin, hai), im okei w doubles
+![ivan_happy_dns](https://cdn.discordapp.com/emojis/1507941159777992704.webp?size=48&name=ivan_happy_dns&lossless=true)
+◟. ☆ ivan yume (and fictkin, hai), im okei w doubles
+
+![red](https://cdn.discordapp.com/emojis/679082134622830599.webp?size=48&name=red&lossless=true)
+◟. ☆ I make games on Ren'Py or in RPG Maker, I never tried Unity so idk
 
   
 </details>
