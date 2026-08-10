@@ -34,7 +34,7 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/the-gr
 ◟. ☆ ee my name is Heavenly / Kuru / Keiji or idk how many names I used to have, im always known as Kuru
 
 ![teppy_heart](https://cdn.discordapp.com/emojis/1302630775514206261.webp?size=48&name=teppy_heart&lossless=true)
-◟. ☆ im polyromantic / gay / transmasc . in love with 2 friends (me andd my exwife are now friends i lov them anyways
+◟. ☆ im polyromantic / gay / transmasc . takenn ^_^
 
 ![andrew_vibin_dns](https://cdn.discordapp.com/emojis/1508151752258617354.webp?size=48&name=andrew_vibin_dns&lossless=true)
 ◟. ☆ i love listening to music, specially mashcore / breakcore (i usually listen to spoonXYZ). Sometimes metal (usually heavy metal), etc. I listen to everything, so if u want to recommend me a song, i will accept it (even its the sprunki song .hj
