@@ -8,7 +8,7 @@
 
   # 
 
-$\color{#ff3c3c}{𝜗୧⠀ׁ~  Heavenly}$ㅤ   ㅤ  ㅤ  $\color{#e4388d}{or}$ㅤ   ㅤ  ㅤ  $\color{#a2162b}{Kuru ⠀ׁ꒷꒦}$
+$\color{#ff3c3c}{𝜗୧⠀ׁ~  Archy}$ㅤ   ㅤ  ㅤ  $\color{#e4388d}{or}$ㅤ   ㅤ  ㅤ  $\color{#a2162b}{Kuru ⠀ׁ꒷꒦}$
 
 $\color{#949494}{꒷꒦⊹ He}$ㅤ   ㅤ/  ㅤ  $\color{#837f7f}{any~” ⊹}$
 
@@ -43,7 +43,7 @@ $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/the-gr
 ◟. ☆ ivan yume (and fictkin, hai), im okei w doubles
 
 ![red](https://cdn.discordapp.com/emojis/679082134622830599.webp?size=48&name=red&lossless=true)
-◟. ☆ I make games on Ren'Py or in RPG Maker, I never tried Unity so idk
+◟. ☆ I make games on roblox yes
 
   
 </details>
